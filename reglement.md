@@ -354,5 +354,6 @@ Nederlands kunnen spreken is verplicht.
 * Het is verboden met voertuigen gebouwen in te rijden.
 * Onder afk proberen uit te komen is verboden.
 * Ben je als agent niet in game mag je niet deelnemen aan de overval.
-* wanneer je wordt vermoord door een rivaliserende gang mag je 24 uur niet deelnemen aan eventuele wraakacties of roleplay richting een andere gang.
+* Wanneer je wordt vermoord door een rivaliserende gang mag je 24 uur niet deelnemen aan eventuele wraakacties of roleplay richting een andere gang.
+* Respect naar vrouwen is een must have, onze staff dames aarzelen niet om je op vakantie te sturen mits je over de streep gaat! Behandel een vrouw kortom niet als vuil. Start geen Roleplay met contexten als verkrachtingen, seksueel getinte uitspraken danwel andere daden waarbij persoonlijke problematiek kunnen voorkomen.
 * Het is verboden een ambulancier of anwb'er te vermoorden of te ontvoeren bij een oproep of gebruik van hun.

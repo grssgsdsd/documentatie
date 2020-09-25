@@ -99,7 +99,7 @@
 
 ### Artikel 7 - Cop-baiting
 
-1. Hij/zij die moedwillig ambtenaren uitlokt met de intentie deze te irriteren en/of bezig te houden zal bestraft worden met een straf volgens de 1e categorie.
+1. Hij/zij die moedwillig ambtenaren uitlokt met de intentie deze te irriteren en/of bezig te houden zal bestraft worden met een straf volgens de 1e categorie, bij aanhoudende klachten de 6e categorie.
 2. De overtreding zoals beschreven in lid 1 staat bekend als “cop-baiting”
 
 ### Artikel 8 - Spam

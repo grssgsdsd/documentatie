@@ -6,8 +6,6 @@
 | Vastgesteld door          | De Hoge Raad|
 | Onderwerp                 | Openbare orde en veiligheid|
 
-Het Wetboek van Strafrecht, specifiek bedoeld voor Noorderlicht, wordt hierbij ingetrokken en vervangen door deze APV.
-
 ## Algemene Bepalingen
 
 ### A1 - Reikwijdte

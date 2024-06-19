@@ -1,10 +1,4 @@
-| | |
-|---|---|
-| Overheidsorganisatie      | Hoge Raad Noorderlicht |
-| Officiële naam regeling   | Algemene Plaatselijke Verordening Noorderlicht 2020 |
-| Citeertitel               | Algemene Plaatselijke Verordening Noorderlicht|
-| Vastgesteld door          | De Hoge Raad|
-| Onderwerp                 | Openbare orde en veiligheid|
+
 
 ## Algemene Bepalingen
 
